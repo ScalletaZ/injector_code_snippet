@@ -3,5 +3,5 @@ some km code snippet could be helpful for someone
 
 ## NOTICE:
 
-### Some smooth hacker(fraud) is probably selling this for example: skeng#9524
+### Some 1337 hacker(fraud) is probably selling this for example: skeng#9524
 
